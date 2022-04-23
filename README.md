@@ -6,7 +6,7 @@
 - 🌱 I’m currently learning ... The Intermediete Stuff On Linux
 - 🤔 I’m looking for help with ... My Github Profile As I Am New
 - 💬 Ask me about ... Anything
-- 📫 How to reach me: ... Through Email [#my email]
+- 📫 How to reach me: ... Through Email [sarveshfifa@gmail.com]
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... I Am a Dravidian Brahmin
 - Another Fact: ... The Person You See On My Profile Picture Is A Hindu God
