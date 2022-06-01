@@ -11,3 +11,6 @@
 - ⚡ Fun fact: ... I Am a Dravidian Brahmin
 - Another Fact: ... The Person You See On My Profile Picture Is A Hindu God
 - Extra But Useless: ... I Use Arch BTW
+- I Have Many Private Repos Lol
+
+i am ashamed of you seeing my code
